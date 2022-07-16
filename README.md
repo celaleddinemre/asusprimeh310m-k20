@@ -1,0 +1,1 @@
+# asusprimeh310m-k20
